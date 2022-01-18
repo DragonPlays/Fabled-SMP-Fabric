@@ -1,1 +1,1 @@
-# Fabled-SMP-Plus-Fabric-
+https://www.curseforge.com/minecraft/modpacks/fabled-smp-plus-fabric
